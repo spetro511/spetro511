@@ -48,12 +48,12 @@ You can click the Preview link to take a look at your changes.
 
 ---
 
-## 🤝 New Partnership: [Suren’s Creations](https://SurensCreations.com)
+## 🤝 New Partnership: [Sucoro](https://sucoro.com)
 
-- 🌟 Just launched a partnership with [a dear friend, much to come](https://SurensCreations.com)!
+- 🌟 Just launched a partnership with [a dear friend, much to come](https://Sucoro.com)!
 - 🎨 Suren brings epic creativity and portfolio firepower.
 - 🤝 More joint projects and collabs coming soon — stay tuned.
-- 🚀 Check out Suren’s work and our latest launches at [SurensCreations.com](https://SurensCreations.com).
+- 🚀 Check out Suren’s work and our latest launches at [Sucoro.com](https://Sucoro.com).
 
 ---
 
